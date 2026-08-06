@@ -4,7 +4,7 @@
 
 BSc Computer Science student at the University of West London (graduating 2027), based in London, UK.
 
-📫 [LinkedIn](https://www.linkedin.com/in/kushagrawalcse/) · kushagra7067@gmail.com
+📫 [LinkedIn](https://www.linkedin.com/in/kush-agrawalcse/) · kushagra7067@gmail.com
 
 ---
 
